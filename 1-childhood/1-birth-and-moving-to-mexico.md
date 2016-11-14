@@ -1,3 +1,6 @@
+####Life Story of Ellen Precinda Moffett Done
+*As related to her daugher Olive Done Hall in 1960*
+
 Though I never saw my maternal grandfather, I was born on his
 fifty-ninth birthday, May 14, 1883, in the little Mormon
 settlement of St. Johns, Apache County, Arizona. This was a
@@ -15,7 +18,7 @@ wagon journey in November of 1881, arriving at St. Johns on December
 Before leaving Utah my mother had had two children: Joseph
 Armstead, born September 6, 1877, in Ogden; died September 2, 1879,
 in Eden, and Olive Della, born April 14, 1880, in Salt Lake City.
-My Aunt Maria had one child: Benjamin Ammon, born October l6, 1881, in Eden.
+My Aunt Maria had one child: Benjamin Ammon, born October 16, 1881, in Eden.
 
 The new home was not to be enjoyed for long, as persecution
 followed very soon. One month after my birth, Aunt Maria gave
@@ -38,8 +41,8 @@ made from a wild duck one of the boys had killed.
 Soon the company was again on its way. By the end of March we had
 reached a place called San Jose, some twenty miles south of the town
 of Coroletos, in the State of Chihuahua, Mexico. Here my father
-announced he would make camp for some time, and on April 2, 1885,
-Aunt Maria's baby girl, Laura Ann, was born in a wagon box on the
+announced he would make camp for some time, and, on April 2, 1885,
+Aunt Maria's baby girl, Laura Ann, was born in a wagon box, on the
 banks of the Casas Grande River, just across from where the town of
 Dublan was later established.
 
@@ -66,7 +69,7 @@ company was deeply concerned, for it was in no condition to make a
 return journey.
 
 Apostle George Teasdale came to their rescue. With my father and Isaac
-Turley as teamsters ana cooks, he drove to the nearest telegraph station
+Turley as teamsters and cooks, he drove to the nearest telegraph station
 and sent an urgent wire to President McDonald.
 
 Before they left, Apostle Teasdale suggested that the company fast and
@@ -87,7 +90,7 @@ and that the land had been purchased for their colony.
 
 My brother Junius was born June 24, 1885, while the company was
 still camped on the banks of the Casas Grande River. It was a
-stormy night and the wind often blew out the only light they had - a
+stormy night and the wind often blew out the only light they had -- a
 candle down in the bottom of an olla. My mother and her baby
 were drenched with the rain several times during the five days
 she remained in bed, but she did not fear. She knew her Heavenly

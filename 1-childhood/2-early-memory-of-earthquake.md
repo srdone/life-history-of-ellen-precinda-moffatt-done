@@ -13,7 +13,7 @@ had molasses cakes and candy with black walnuts in them. Dried squash
 and musk melon tasted mighty good as there were no other fruits or
 vegetables to be had. We also enjoyed parched corn.
 
-My first vivid childhood memory is of an earthquake, on May 2, 1886,
+My first vivid childhood memory is of an earthquake, on May 27, 1886,
 just a week after my birthday. I was in our back yard going toward the
 house when I suddenly found it very hard to walk. I couldn't even
 stand still so I sat down and looked around to see what was wrong.

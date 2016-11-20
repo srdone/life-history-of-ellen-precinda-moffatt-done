@@ -6,7 +6,7 @@
 **Born May 14, 1883 - St. Johns, Apache, Arizona**  
 **Died August 4, 1975 - Salt Lake City, Salt Lake, Utah**
 
-####Lovingly known as "Nellie" to family and friends
+**Lovingly known as "Nellie" to family and friends**
 
 #####Compiled by her daughters:
 *Olive Done Hall*  

@@ -1,4 +1,4 @@
-####Life Story of Ellen Precinda Moffett Done
+#####Life Story of Ellen Precinda Moffett Done
 *As related to her daugher Olive Done Hall in 1960*
 
 Though I never saw my maternal grandfather, I was born on his

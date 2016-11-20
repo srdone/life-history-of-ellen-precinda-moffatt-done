@@ -8,7 +8,7 @@
   * [Early faith and lessons learned](1-childhood/3-early-faith-and-lessons-learned.md)
   * [Summer in Cave Valley](1-childhood/4-summer-in-cave-valley.md)
   * [Auntie I'm Dead](1-childhood/5-auntie-im-dead.md)
-  * [Poison parsnips and mushroms](1-childhood/6-poison-parsnips-and-mushrooms.md)
+  * [Poison parsnips and mushrooms](1-childhood/6-poison-parsnips-and-mushrooms.md)
   * [Simple joys of life](1-childhood/7-simple-joys-of-life.md)
   * [Diptheria and revelation](1-childhood/8-diptheria-and-revelation.md)
   * [School in Pacheco](1-childhood/9-school-in-pacheco.md)

@@ -18,8 +18,7 @@ each for Papa and Ammon, made the rounds. We were all so proud of
 him and his thoughtfulness and ability to make eleven cents go so far.
 
 In the early spring of 1933, Reed brought his new wife, Reina, to
-Mesa. They had been married in Los Moches, Mexico, on November 16,
-1931. Mother opened the home to them. They lived in the front bedroom.
+Mesa. They had been married in Los Moches, Mexico, on November 16, 1931. Mother opened the home to them. They lived in the front bedroom.
 Reed went to work for the W.P.A. He was determined to get a home of
 his own as soon as possible.
 
@@ -39,8 +38,7 @@ her ailment and wanted to give her every chance to do so. She would
 swell all up then hemorrhage and almost bleed to death before the
 bleeding could be stopped.
 
-She was having a real bad spell when Reed's baby was born December 8,
-1933. Reina had a horrible time having that baby. Grandmother delivered
+She was having a real bad spell when Reed's baby was born December 8, 1933. Reina had a horrible time having that baby. Grandmother delivered
 it. Her great wisdom, experience and faith in the Lord, plus many
 prayers said by Mother, saved Reina and her baby boy. They named him
 Reed Elmer.

@@ -1,6 +1,8 @@
 # Summary
 
 * [Introduction](README.md)
+  * [Dedication](mother-poem.md)
+  * [Foreword for new edition](foreword.md)
 
 * [Childhood](1-childhood/README.md)
   * [Birth and moving to Mexico](1-childhood/1-birth-and-moving-to-mexico.md)

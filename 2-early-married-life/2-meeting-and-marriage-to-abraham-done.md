@@ -34,12 +34,14 @@ Most of all, I enjoyed going through the Temple, which I did several times. It w
 
 A short time after our return home Brother Done told me that President Ivins had said he would be happy to marry us. On June 5, 1903 we were married for time and eternity, in his home in Juarez. We have always been very thankful to know that he had the proper authority to perform this plural marriage, from the Prophet, Seer and Revelator of our Church.
 
-An explanation is given here so readers will understand why my mother always referred to her husband as 'Brother Done', or 'my husband', never calling him by his first name.
+> An explanation is given here so readers will understand why my mother always referred to her husband as 'Brother Done', or 'my husband', never calling him by his first name.
 
-At a Stake Conference held in Juarez in April of 1903, the visiting authority from Salt Lake City had his wife meet with all the women who had entered into plural marriage, or soon would do so. Aunt Lizzie, Aunt Louisa and my mother were in attendance.
+> At a Stake Conference held in Juarez in April of 1903, the visiting authority from Salt Lake City had his wife meet with all the women who had entered into plural marriage, or soon would do so. Aunt Lizzie, Aunt Louisa and my mother were in attendance.
 
-The visiting Sister gave them sound advice and then conducted a question and answer period. Finally she asked some of the first wives to tell what special things upset them most in accepting the later wives of their husbands. Aunt Lizzie said that one of the hardest things for her to accept was to have the other wife call her husband by his first name.
+> The visiting Sister gave them sound advice and then conducted a question and answer period. Finally she asked some of the first wives to tell what special things upset them most in accepting the later wives of their husbands. Aunt Lizzie said that one of the hardest things for her to accept was to have the other wife call her husband by his first name.
 
-My mother respected her in this all her life and never called her husband by his first name.
+> My mother respected her in this all her life and never called her husband by his first name.
 
-In addressing her children she referred to him as 'papa' or 'your father', but none of us ever heard her call him Abe or Abraham as Aunt Lizzie did.        ——Olive Done Hall.
+> In addressing her children she referred to him as 'papa' or 'your father', but none of us ever heard her call him Abe or Abraham as Aunt Lizzie did.
+
+> -- Olive Done Hall.

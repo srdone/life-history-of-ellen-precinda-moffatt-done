@@ -3,9 +3,9 @@
 Nellie's life history has been a wonderful gift in my life.
 I have many memories of my father, Brent Done (Nellie's
 great-grandson), reading it to me as a child. The stories
-related give me strength to overcome challenges and trials
-and, in addition to the scriptures, have been a key source
-of faith and hope in my life.
+related herein give me strength to overcome challenges and
+trials and, in addition to the scriptures, have been a
+key source of faith and hope in my life.
 
 I have had the original book scanned into my computer for many
 years, and I am glad that I finally am able to
@@ -29,4 +29,4 @@ can ever hope to be alone. Nellie knew this, and lived her
 life by the word of the Lord. May all who read her story
 desire to experience the same power in their lives.
 
--- Stephen Done, November 20, 2016
+-- Stephen Reed Done, November 20, 2016

@@ -23,28 +23,28 @@ bites, he ran toward the house screaming, "Auntie, I'm dead. Auntie,
 I'm dead." We all ran after him screaming, "Auntie, I'm dead. Auntie,
 I'm dead."
 
-From her chair under a tree, where she was weaving baskets. Mother looked
+From her chair under a tree, where she was weaving baskets, Mother looked
 out on the livliest bunch of 'dead' children she had ever seen.
 
 The situation was serious. Father and Aunt Maria had gone to the
 Williams Ranch, five miles away, where he was to do some carpenter
-work. They expected to bs gone for a week or ten days. Our nearest
+work. They expected to be gone for a week or ten days. Our nearest
 neighbors, the Kartchners, were also away from home. Mother was alone
 with her own and Aunt Maria's children.
 
 She picked up a piece of string she had been using in her basket weaving
 and made a tourniquet around Ben's wrist to keep the poison from going
 up his arm. She gave him a swallow of liquor from her meager medical
-supplies to keep the poison from going to his stomach. Next She split
+supplies to keep the poison from going to his stomach. Next she split
 his finger through the fang marks and sucked out all the poison she
 could. His hand began to swell very badly.
 
 She had none of the medications needed to treat snake bites, so she used
 what she had. She carried in a pan of thick, wet mud from the creek
-and put the bitten hand into it. The mud steamed up liKe a Kettle of
+and put the bitten hand into it. The mud steamed up like a kettle of
 boiling water. All through the night she kept her anxious vigil,
 changing the mud as it became hot with the poison it drew from the
-snakebite. By morning the swelling was almost gone and Ben was nis
+snakebite. By morning the swelling was almost gone and Ben was his
 own mischievous self within a few days.
 
 Mother took the children up the creek to gather willows for basket

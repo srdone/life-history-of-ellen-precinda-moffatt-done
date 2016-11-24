@@ -24,7 +24,7 @@ we watched our anxious parents fight desperately to save the life
 of their little son. Through their work, faith, and God's help,
 the little boy lived and regained his health.
 
-I had neard grownups talk about how delicious mushrooms were and that
+I had heard grownups talk about how delicious mushrooms were and that
 they were something like toadstools in shape and color. One day I
 found some pretty, white toadstools with delicate pink colorings
 underneath. I thought, surely here were mushrooms that ought to be

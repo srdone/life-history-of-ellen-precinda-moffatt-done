@@ -20,7 +20,7 @@ In her rush to prepare for this journey she was doing some sewing on a Sunday af
 
 On our way we encountered a snowslide which caused the engine of the train to drive into the mountainside. The impact shook us up considerably, though we were all very thankful the engine hadn't gone off the other side, as all the cars would surely have rolled over and over down the steep incline.
 
-When everything was again under control Laura was vehemently sobbing that it was all her fault. Also, when she came to wear the skirt she had fixed on that Sunday afternoon, she learned that her work of the Sabbath had really 'come to naught'. She had replaced a torn gore in a black cash-mere skirt without realizing there was more than one shade of black. The new gore was bluish black while the rest of the skirt was of a brown hue.
+When everything was again under control Laura was vehemently sobbing that it was all her fault. Also, when she came to wear the skirt she had fixed on that Sunday afternoon, she learned that her work of the Sabbath had really 'come to naught'. She had replaced a torn gore in a black cashmere skirt without realizing there was more than one shade of black. The new gore was bluish black while the rest of the skirt was of a brown hue.
 
 Some hours later we were on our way again and arrived at our destination in safety.
 

@@ -14,7 +14,7 @@ Father soon decided to leave the mountains. He bought a lot in Juarez, with a sm
 
 During the year of 1893 Father hauled lumber from the mountains and built a home for Aunt Maria. It was at this time her little son Willard was kicked in the bowels by a horse. He lay at the point of death for almost a month, then became a little better for about two years. He did so want to be baptized. He lived only two months after his eighth birthday, long enough to realize his great desire.
 
-On September 15, 1893 Mother gave birth to a baby girl. The next day, September l6 Aunt Maria also gave birth to a baby girl. They named them Verdie Myrtle and Verna May. Mother's little Verdie only lived a year. She died of inflamation of the bowels on September 19, 1894.
+On September 15, 1893 Mother gave birth to a baby girl. The next day, September 16 Aunt Maria also gave birth to a baby girl. They named them Verdie Myrtle and Verna May. Mother's little Verdie only lived a year. She died of inflamation of the bowels on September 19, 1894.
 
 We enjoyed going to school. The teachers were fine and the schoolhouse so much nicer than we had ever seen before. It was fun to have so many other children to play with, and to attend Sunday School, Primary and Church regularly. It was so nice to have enough children of our own ages to make classes so much more interesting.
 

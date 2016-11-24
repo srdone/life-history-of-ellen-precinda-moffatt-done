@@ -86,7 +86,7 @@ entirely different natures. Horace could make up his mind quickly and
 wanted to get things done fast. Owen was very slow. Sometimes Horace
 would get so exasperated he would yell at Owen to "come on and quit
 being so darn slow". Owen made his quiet slowness pay off with the
-elderly women of the neighborhood. He would sit on their parches and
+elderly women of the neighborhood. He would sit on their porches and
 let them talk to him all they wanted. He always got cookies or other
 goodies for his trouble. Horace envied the cookies, etc., but had no
 patience with the way they were earned.

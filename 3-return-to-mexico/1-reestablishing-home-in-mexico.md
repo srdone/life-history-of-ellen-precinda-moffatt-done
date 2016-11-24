@@ -24,7 +24,7 @@ Papa didn't do anything until the morning after the day the Mexicans were
 supposed to have moved. Early that morning he went to the new house he
 had been building at the time of the Exodus. The Mexicans were using it
 for a shelter for their animals. They had cows in one room, pigs in another 
-nd goats and chickens in the other two. He turned the animals into the
+and goats and chickens in the other two. He turned the animals into the
 yard and started shoveling out the mess. The Mexicans ran into the street
 and started screaming that a man was "throwing things out of their house,"
 which wasn't true, as Papa had been very careful not to disturb the house
@@ -52,7 +52,7 @@ angry about it all. He was especially angry at the policeman, had him
 whipped with a 'cat-o-nine tails' and demoted.
 
 He gave orders for the Mexicans to be moved off our property by sundown
-of the next day or they would all be put in jails
+of the next day or they would all be put in jail.
 
 It was a great relief to the whole family to finally see all the Mexicans,
 their belongings and animals off our place. Everyone went to work cleaning
@@ -119,7 +119,7 @@ about them as she knew they could be sold to pay some debts and buy
 some things that were much needed.
 
 One day Mother sent Elias to get a pan of beans to cook for supper. He
-came running back. his poor face was pale and he was very upset. Mother
+came running back. His poor face was pale and he was very upset. Mother
 calmed him down and he was finally able to say, "No beans, no one,
 all go." All those sacks of beans had been stolen. Papa knew right off
 who had stolen them, but he also knew he could not prove it. That

@@ -5,7 +5,7 @@ Juarez, her son Willard Franklin was born on May 10, 1887.
 How well I remember that summer! There were mountains to climb, big
 trees to rest and play under, beautiful flowers to pick and a lovely
 stream to watch and listen to. We gathered pine gum, wild grapes,
-squawberries and acorns. We often saw squirrels. Sometimes they would
+strawberries and acorns. We often saw squirrels. Sometimes they would
 chatter at us. Parakeets flew overhead, scolding at each other and at
 us. Songbirds filled the air with their lovely melodies.
 
@@ -84,7 +84,7 @@ Besides furnishing water for home use this brook was nice to play by,
 splash and wade in. The most treasured memories about it were the
 occasions when my older brother and sister were baptized in it. The most
 terrifying is of one afternoon when my brother Junius called, "Look at
-that bear." We all looked and. saw a big brown bear walking quietly
+that bear." We all looked and saw a big brown bear walking quietly
 along the side of the mountain.
 
 Our neighbors saw it about the same time we did. Mother brought the gun
@@ -100,14 +100,14 @@ where he fastened a seat. This made a swing for us. We always called it
 the 'log swing', Many pleasant hours were spent in it by all the children
 in the settlement.
 
-Mother's next child was born November l4, l887, soon after our move to
+Mother's next child was born November 14, 1887, soon after our move to
 Cave Valley. This was a fine son. They named him Norman David. The night
 was dark and too stormy to go for other help, so my father and Aunt
 Maria helped him come into his new home where all of us welcomed and
 loved him.
 
 Our clothes were becoming worn, we had no money for new ones, and there
-were no stores anyway. Father helped shear sheep at a neighbor's* taking
+were no stores anyway. Father helped shear sheep at a neighbor's taking
 wool for his pay. He remembered his mother's spinning wheel and made one
 patterned after it, on which yarn was spun to be knitted and crocheted
 into many pieces of useful clothing.

@@ -2,7 +2,7 @@ Soon we moved to Dublan, a rather new settlement, situated on the railroad line 
 
 Aunt Maria's son Jedediah was born January 4, 1897, after she was settled in her new home in Dublan, and just before Mother's family moved there.
 
-On this farm we planted our crops where the Lamanites of hundreds of years before had lived and farmed. Proof of this was to be found through relics we found in the freshly plowed earth. Pieces of pottery, mostly broken, but on occasion we found one in perfect condition. One day, while digging, we uncovered a string of blue beads. They lay there looking almost perfect until we attempted to pick them up. The string was completely rotted away and the beads crumbled at our touch. This was on what we call-ed the 'upper farm', about five miles south of Dublan proper. Father and the boys farmed the land, but the two families lived in town most of the time.
+On this farm we planted our crops where the Lamanites of hundreds of years before had lived and farmed. Proof of this was to be found through relics we found in the freshly plowed earth. Pieces of pottery, mostly broken, but on occasion we found one in perfect condition. One day, while digging, we uncovered a string of blue beads. They lay there looking almost perfect until we attempted to pick them up. The string was completely rotted away and the beads crumbled at our touch. This was on what we called the 'upper farm', about five miles south of Dublan proper. Father and the boys farmed the land, but the two families lived in town most of the time.
 
 The years passed happily. We had our fun along with our work. Hay rides in the moonlight, picnics along the river, under the large cottonwood trees, dances, parties and 'home talent' theaters gave spice to pioneer life.
 
@@ -16,7 +16,7 @@ One evening while Lula was still very tiny, Father was holding her while the oth
 
 Little ears were wide open, especially those of four-year-old Zelnora. The next day she heard the baby crying and presumed she had scratched herself again. Those fingernails must be trimmed! Armed with a large pair of shears, she began the task. Luckily for all concerned, her first attempt at cutting the nails of her tiny sister brought lusty howls and Mother came to the rescue before any harm was done.
 
-Father wanted to spank Zelnora, but Mother would not let him. She told him that the remark of the evening before had been overheard by the child who would never have thought of doing such a thing by herself. This epi-sode made us all more careful what we said in front of younger children, and many times since I have thought twice before punishing a child for something it might have done innocently because of a careless remark from an older person.
+Father wanted to spank Zelnora, but Mother would not let him. She told him that the remark of the evening before had been overheard by the child who would never have thought of doing such a thing by herself. This episode made us all more careful what we said in front of younger children, and many times since I have thought twice before punishing a child for something it might have done innocently because of a careless remark from an older person.
 
 Soon after the settlement of Dublan, the people decided to build a reservoir and canal from the river to store water for irrigation purposes. The valley was examined and a likely spot located near the east hills was chosen. It had three good-sized low places which seemed perfect for lakes. Next they surveyed for the canal, locating the likeliest line for this purpose.
 

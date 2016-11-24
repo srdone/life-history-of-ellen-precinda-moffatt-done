@@ -19,7 +19,7 @@ intervals. She also put ice packs on my throat and chest and kept my
 feet in warm water. Soon I was breathing normally and was fast asleep.
 By morning I was much better.
 
-That morning word came that baby Ether was dead. and that Laura was dying.
+That morning word came that baby Ether was dead, and that Laura was dying.
 Quickly Mother placed a few things in a bag and climbed into the wagon.
 She urged the driver to use all possible speed. They covered the five
 miles of rough mountain road in record time, but none too soon, as Laura

@@ -7,7 +7,7 @@ were playing with a real gun. They had assured Mother that it wasn't
 loaded. She went on about her work. Soon she heard a shot, then complete
 silence. She said that was the longest trip she ever took. Each step
 was like an eternity, and each step was a prayer. When she realized that
-the bullet hadn't hit any of the boys. she really said a prayer of
+the bullet hadn't hit any of the boys, she really said a prayer of
 thanks, especially thanking their guardian angels who always seemed
 overworked around our home. That gun and its young owner were sent
 home in a hurry.

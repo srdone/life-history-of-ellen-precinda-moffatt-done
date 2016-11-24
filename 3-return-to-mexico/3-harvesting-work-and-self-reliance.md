@@ -88,7 +88,7 @@ day. She hadn't brought them in so she knew they had been stolen.
 Mother was a genius at making a good meal out of practically nothing.
 The way she could 'stretch' food was almost unbelievable, but it was
 always delicious. Her bean rolls, fruit cobblers and homemade bread
-were the test in town. Many times we could smell the fresh baked
+were the best in town. Many times we could smell the fresh baked
 bread before we got into the house from school. She would always
 let us have some of it while it was still hot, and hot bread and
 honey is one of our most cherished memories.

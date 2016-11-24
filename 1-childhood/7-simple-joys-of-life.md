@@ -22,7 +22,7 @@ for a bit of grass overlooked by the other animals, so we called him
 Grubber. Often we would pile onto his back until he was covered with
 children from his ears to his tail. Patiently he would trudge along
 under this load until he could take it no longer. He would then sit
-down en his haunches and we would all slide to the ground in a heap.
+down on his haunches and we would all slide to the ground in a heap.
 No amount of coaxing, cajolling or scolding could induce him to move
 again until he was good and ready.
 

@@ -23,7 +23,7 @@ The ground seemed to be rising and falling and looked very much like
 ripples on running water. I heard Aunt Maria scream and turned to
 see why. She was coming out of the house with her baby in her
 arms. She was so unsteady she bumped both sides of the door frame
-as she came out. Just then I heard someone say, "Its an earthquake."
+as she came out. Just then I heard someone say, "It's an earthquake."
 I soon got up and was glad to find I could walk as good as ever. The
 land was again still and smooth and the men in the field went on
 with their work.

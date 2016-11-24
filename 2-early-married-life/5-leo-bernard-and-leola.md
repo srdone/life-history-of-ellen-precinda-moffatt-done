@@ -21,7 +21,7 @@ soon go, making the two little graves. Even when they both recovered
 the premonition stayed with me and persisted in my mind until September
 when my husband took me out to the cemetery to see Leo's grave for the
 first time. There I saw the two little graves, my little Leo's and that
-of Lizzie's little Ahram who had died of the same disease in January of
+of Lizzie's little Abram who had died of the same disease in January of
 1902.
 
 Early that spring I had let the children put turkey eggs under an old

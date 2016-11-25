@@ -1,4 +1,4 @@
-# The Life Story of Ellen Precinda Moffatt Done
+# The Life Story of Ellen Precinda Moffett Done
 
 ###Daughter of Joseph A. and Olive C.E. Moffett
 ---

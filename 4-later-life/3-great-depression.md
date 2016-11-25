@@ -1,13 +1,13 @@
-We heard plenty about the 'horrible depression' of the thirties, but
+_We heard plenty about the 'horrible depression' of the thirties, but
 we were so poor anyway that it didn't affect our lives at all. We
 were the lucky ones. We had no adjustments to make as did the people
 who were used to a lot more and, all of a sudden, could no longer
-have luxuries, but just the bare necessities.
+have luxuries, but just the bare necessities._
 
-Several times Mother rented the front room to Temple workers for a few
-months at a time. It really cramped us, but every penny was needed.
+_Several times Mother rented the front room to Temple workers for a few
+months at a time. It really cramped us, but every penny was needed._
 
-Our first two or three Christmases in Mesa were very lean. Just a
+_Our first two or three Christmases in Mesa were very lean. Just a
 few little extras could be afforded. One Christmas Owen had just
 eleven cents. He was determined to give everyone at home a little
 present. He bought a five cent package of bobby pins and divided
@@ -15,95 +15,95 @@ it between Olive, Leola and me. A three cent spool of thread went
 to Mother. A two cent package of rubber lands was for Horace, and
 two pieces of foil-wrapped 'chocolate money' (two for a penny), one
 each for Papa and Ammon, made the rounds. We were all so proud of
-him and his thoughtfulness and ability to make eleven cents go so far.
+him and his thoughtfulness and ability to make eleven cents go so far._
 
-In the early spring of 1933, Reed brought his new wife, Reina, to
+_In the early spring of 1933, Reed brought his new wife, Reina, to
 Mesa. They had been married in Los Moches, Mexico, on November 16, 1931. Mother opened the home to them. They lived in the front bedroom.
 Reed went to work for the W.P.A. He was determined to get a home of
-his own as soon as possible.
+his own as soon as possible._
 
-Mother was so very happy that Reed was married and settled down, as
-he had been such a wanderer. She learned to dearly love Reina.
+_Mother was so very happy that Reed was married and settled down, as
+he had been such a wanderer. She learned to dearly love Reina._
 
-Leola married Osborne L. Hutchinson, March 25, 1933, They lived with
-his folks for a while then moved into a home of their own.
+_Leola married Osborne L. Hutchinson, March 25, 1933, They lived with
+his folks for a while then moved into a home of their own._
 
-Leola knew that the money she had been giving Mother would be missed
-very much, so she gave her a little whenever she could.
+_Leola knew that the money she had been giving Mother would be missed
+very much, so she gave her a little whenever she could._
 
-In the fall of this year, Mother started having trouble with her
+_In the fall of this year, Mother started having trouble with her
 female organs. She needed to have them removed, but wouldn't consent
 to the operation. She had such faith in her mother's ability to cure
 her ailment and wanted to give her every chance to do so. She would
 swell all up then hemorrhage and almost bleed to death before the
-bleeding could be stopped.
+bleeding could be stopped._
 
-She was having a real bad spell when Reed's baby was born December 8, 1933. Reina had a horrible time having that baby. Grandmother delivered
+_She was having a real bad spell when Reed's baby was born December 8, 1933. Reina had a horrible time having that baby. Grandmother delivered
 it. Her great wisdom, experience and faith in the Lord, plus many
 prayers said by Mother, saved Reina and her baby boy. They named him
-Reed Elmer.
+Reed Elmer._
 
-Mother felt very bad that she was unable to help at all. Grandmother
+_Mother felt very bad that she was unable to help at all. Grandmother
 was very thankful for the help Olive gave her. No one thought any of
-the rest of us were old enough to help.
+the rest of us were old enough to help._
 
-Reed bought a lot just through the block from Mother. He made his
+_Reed bought a lot just through the block from Mother. He made his
 own adobes and started his house in the spring of 1934. They moved
 into it before it was even half finished. Reina was so happy to
 finally have a home of her own, and Mother was happy for them and
-to have them so close by.
+to have them so close by._
 
-Olive was working in the office at the Temple. Her pay was the
+_Olive was working in the office at the Temple. Her pay was the
 mainstay of the family. Horace and Owen did all the odd jobs they
 could find. Leola lied about my age and got me on at the Telephone
-Company where I worked after school and on Saturdays.
+Company where I worked after school and on Saturdays._
 
-Mother was still having a lot of trouble with hemorrhaging. She still
+_Mother was still having a lot of trouble with hemorrhaging. She still
 had faith that Grandma could take care of everything and would not
-consent to an operation.
+consent to an operation._
 
-On June 15, 1934, Ammon married Goldie Pember. They had the wedding
-at Mother's and rented an apartment quite close by.
+_On June 15, 1934, Ammon married Goldie Pember. They had the wedding
+at Mother's and rented an apartment quite close by._
 
-The house really seemed big with just Mother, Olive, Horace, Owen
+_The house really seemed big with just Mother, Olive, Horace, Owen
 and me. It had always been so full of people. Mother had cut way down
 on the visiting Temple workers, as she didn't feel right about having
 her children support them. Papa was spending most of his time in Provo
-and Salt Lake City with Aunt Lizzie and some of their children.
+and Salt Lake City with Aunt Lizzie and some of their children._
 
-On September 30, 1934 I married William Edward Hill. Papa came to the
+_On September 30, 1934 I married William Edward Hill. Papa came to the
 wedding. Mother and I were both glad of that. He stayed quite a while
-to be with Mother as he was worried about her failing health.
+to be with Mother as he was worried about her failing health._
 
-In June of 1935 Papa's family held a Reunion in Mesa to celebrate his
+_In June of 1935 Papa's family held a Reunion in Mesa to celebrate his
 sixtieth wedding anniversary with his first wife, Aunt Lizzie. We met
 a lot of relatives, from Utah and other distant places, for the first
-time. It was an occasion enjoyed by all.
+time. It was an occasion enjoyed by all._
 
-On October 10, 1935, I had a stillborn baby girl. Mother was sick in
+_On October 10, 1935, I had a stillborn baby girl. Mother was sick in
 bed, so Edward, Olive and Leola took the baby home for her to see.
 The Bishop, Isaac Dana, had said it would do no good to name her, but
 Papa felt that it would. He named her Pearl. Mother felt better at
 having her named. I was so glad to have both my parents feel that it
-was the right thing to do.
+was the right thing to do._
 
-Leola was about five months' pregnant at this time. She got the flu and
+_Leola was about five months' pregnant at this time. She got the flu and
 was terribly sick. She stayed at Mother's and Grandma was with her
 most of the time. She saved Leola's and the unborn baby's lives. Leola
 got so low that she was afraid that she would slip away if someone
 didn't hold her hand. Papa sat for hours holding her hand and praying
 for her. Through Grandma's faith, loving care, Papa's prayers and his
 great faith in the power of the Priesthood, Leola lived through this
-sickness and had a lovely baby girl, born February 25, 1936.
+sickness and had a lovely baby girl, born February 25, 1936._
 
-Soon after this Mother had to be operated on to save her life. She was
+_Soon after this Mother had to be operated on to save her life. She was
 hemorrhaging badly and Grandma was not able to stop it. They found
 a large fibroid tumor that was causing all the trouble. She never
 could have gotten well as long as that tumor was there. It took her
 quite a while to recover, but she finally got back to her normal,
-healthy self, for which we were all very thankful.
+healthy self, for which we were all very thankful._
 
-THESE NEXT INSTANCES IN HER LIFE WERE WRITTEN BY MOTHER.
+**THESE NEXT INSTANCES IN HER LIFE WERE WRITTEN BY MOTHER.**
 
 My husband was spending this winter, 1937, in Salt Lake City with his
 first wife, Lizzie. Their children had rented a small apartment for
@@ -187,62 +187,62 @@ would have to be waited on the rest of her life. Though we all missed
 her we were thankful she did not have to linger in this condition more
 than a few months.
 
-PEARL CONTINUES:
+**PEARL CONTINUES:**
 
-In the spring of 1936, Reina had a bad miscarriage, losing twin girls.
+_In the spring of 1936, Reina had a bad miscarriage, losing twin girls.
 She had climbed on a stool to be able to reach the grape vines in
 her arbor and tie them up into place. The stool slipped, she fell
 causing the miscarriage. She was very sick through it all. Mother was
 with her most of the time. She felt so sorry for Reed and Reina for
 the loss of those two babies. Their main grief was the fact that
-Reina could never have any more children.
+Reina could never have any more children._
 
-On June 22, 1936, Bernard married Margaret Ruth Allee. Mother was so
+_On June 22, 1936, Bernard married Margaret Ruth Allee. Mother was so
 happy that he had finally found a mate and would have a true home.
 He had worked up a good paint contracting business in Daly City,
-California.
+California._
 
-On September 4, 1937, Leola had another little towheaded girl. Things
+_On September 4, 1937, Leola had another little towheaded girl. Things
 had gone well with her during this pregnancy and birth for which we
 were all very thankful. They named the baby Ann. Later Patricia was
 added to it and she was called Patty. She was a healthy, very happy
 baby. It seemed so nice for Mother to finally get a grandchild without
-so much trouble and misery for the mother.
+so much trouble and misery for the mother._
 
-On October 9, 1937, Goldie had a baby girl who came into the world
+_On October 9, 1937, Goldie had a baby girl who came into the world
 without much trouble. She was named Peggy Jean. She was a beautiful,
-happy baby.
+happy baby._
 
-The next year Mother went to work at Deseret Industries. Oilve moved
+_The next year Mother went to work at Deseret Industries. Oilve moved
 into an apartment quite close to the Temple. She wanted to have a
 little bit of a life of her own. She still helped mother moneywise.
-Leola and Reed were good to help her that way also.
+Leola and Reed were good to help her that way also._
 
-On October 2, 1939, Goldie had a baby boy. He was a fine-looking little
+_On October 2, 1939, Goldie had a baby boy. He was a fine-looking little
 fellow. They named him Richard Vernon. Mother started thinking that
-maybe she would be blessed with a lot of grandchildren after all.
+maybe she would be blessed with a lot of grandchildren after all._
 
-Ammon and family moved to San Francisco where work was better. Olive
+_Ammon and family moved to San Francisco where work was better. Olive
 moved to Santa Monica, California where she went to work as a fitter
-in a dress shop.
+in a dress shop._
 
-Horace and Owen were still at home. Horace had finished High School,
+_Horace and Owen were still at home. Horace had finished High School,
 was working and anxious to be on his own, Owen was still in High
-School and working at any part-time job he could find.
+School and working at any part-time job he could find._
 
-Mother's work at Deseret Industries wasn't very pleasant. She had to
+_Mother's work at Deseret Industries wasn't very pleasant. She had to
 walk two miles to work and two miles home every day. She loved
 walking and enjoyed looking at the miracles of nature along the
 way. However, many times she was very weary before she got home.
 At these times I imagine she would wish that one of the miracles of
-nature could have been a stout pair of wings for her.
+nature could have been a stout pair of wings for her._
 
-She had to cope with the tyranny of her 'dear' cousin, Clara Emmett,
+_She had to cope with the tyranny of her 'dear' cousin, Clara Emmett,
 who was her boss. Clara was a very bossy, know-it-all person who,
-for some reason seemed to like to make life miserable for Mother.
+for some reason seemed to like to make life miserable for Mother._
 
-Mother never complained, but went on with her work in her quiet,
+_Mother never complained, but went on with her work in her quiet,
 efficient way. Often she managed to really show Clara up in her
 true light. The other women were delighted when this happened as
 they all disliked Clara as a boss also. Mother kept this job until
-the summer of 1941.
+the summer of 1941._

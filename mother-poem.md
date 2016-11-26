@@ -1,7 +1,7 @@
 #####MOTHER
 God gave you, Mother dear,  
 A gift of love,  
-To bless our motal homes  
+To bless our mortal homes  
 With happiness.  
 Your touch so soft,  
 Your voice  

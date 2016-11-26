@@ -6,7 +6,7 @@
 
 * [Childhood](1-childhood/README.md)
   * [Birth and moving to Mexico](1-childhood/1-birth-and-moving-to-mexico.md)
-  * [Early memory of earthquate](1-childhood/2-early-memory-of-earthquake.md)
+  * [Early memory of earthquake](1-childhood/2-early-memory-of-earthquake.md)
   * [Early faith and lessons learned](1-childhood/3-early-faith-and-lessons-learned.md)
   * [Summer in Cave Valley](1-childhood/4-summer-in-cave-valley.md)
   * [Auntie I'm Dead](1-childhood/5-auntie-im-dead.md)

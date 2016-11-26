@@ -7,7 +7,7 @@ Mother was able to take everything with her, even the kitchen stove._
 
 _We got to Mesa in the afternoon. There was something wrong about the
 deal that had been made for a house, so they hurried and found a
-building lot. Everything was quickly unoladed onto the ground as the
+building lot. Everything was quickly unloaded onto the ground as the
 truck driver had to get back to Tucson._
 
 _It was late, so after supper and prayers, in which thanks was given

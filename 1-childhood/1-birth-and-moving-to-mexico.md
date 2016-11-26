@@ -1,5 +1,5 @@
 #####Life Story of Ellen Precinda Moffett Done
-*As related to her daugher Olive Done Hall in 1960*
+*As related to her daughter Olive Done Hall in 1960*
 
 Though I never saw my maternal grandfather, I was born on his
 fifty-ninth birthday, May 14, 1883, in the little Mormon
@@ -62,7 +62,7 @@ bread for the little company for the first year.
 While waiting for instructions from President A. F. McDonald, then in
 Mexico City, to make purchase of land for them to settle on, the
 officials of the State of Chihuahua became alarmed through rumors that
-these Mormons had bsen driven out of their own country because of ill
+these Mormons had been driven out of their own country because of ill
 behavior. They immediately issued orders for their expulsion, giving
 them only three days to leave. This was in April of 1885. The little
 company was deeply concerned, for it was in no condition to make a

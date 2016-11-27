@@ -16,5 +16,3 @@
 #####Formatted for eBook and reprinting by
 *Stephen Reed Done*  
 *2016*
-
-![Ellen Precinda](images/ellen-precinda.jpg)
